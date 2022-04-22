@@ -1,2 +1,3 @@
-LMAOOOOOOOO GET TROLLED!!
-ok but fr go to this website: mothman.com
+HOW TO DOWNLOAD: https://www.youtube.com/watch?v=PXqcHi2fkXI
+
+Hope you guys enjoy :]
